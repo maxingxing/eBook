@@ -1,4 +1,4 @@
-# eBook - God's Prayer        
+# eBook - God's Prayer- Current Version: 1.0.0
 
 Apple iTunes Store Page: https://itunes.apple.com/us/app/id1449095854
 
